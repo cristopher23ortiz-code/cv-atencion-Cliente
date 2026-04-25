@@ -11,8 +11,8 @@ Especialista en atención al cliente en español. Paciente, responsable y con bu
 - Ventas telefónicas y seguimiento
 - Internet fibra óptica 100mb + PC con audífonos
 - Disponibilidad horario tarde/noche para USA/LATAM
-
-## 💼 Busco trabajo como:
+  manejo de excel y google sheets para reportes de clientes 
+  ## 💼 Busco trabajo como:
 Agente de atención al cliente, Soporte por chat, Ventas telefónicas, Moderador de contenido
 
 ## 📞 Contáctame
