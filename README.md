@@ -18,6 +18,7 @@ Agente de atención al cliente, Soporte por chat, Ventas telefónicas, Moderador
 ## 📞 Contáctame
 - Email: cristopher23@gmail.com
 - WhatsApp: +1 829-669-6364
+- LinkedIn: linkedin.com/in/cristopher23ortiz
 - Santo Domingo, República Dominicana
 
 *Disponible para entrevista inmediata*
